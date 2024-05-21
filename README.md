@@ -1,0 +1,1 @@
+Olá professora, como você vai? Espero que bem esse é o meu quiz, que ficou razoavelmente basico, mas que graças as duvidas tiradas por você consegui aplicar as 3 funções determinadas no enunciado. Espero que goste de Artes, fique bem e um ABRAÇO.
